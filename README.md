@@ -1,3 +1,4 @@
-# Elgenious Koder
-Hi, this is 
-## Muhammad Farooq Chaudhry
+Hi👋, I'm
+# Muhammad Farooq Chaudhry
+Founder and CEO of
+## ElgenKoders
